@@ -1,2 +1,2 @@
 # Inspire.Brandon-Thomas.AI-Software-Developer
-https://x.com/MarioNawfal/status/2109094130047689169 https://www.google.com/search?q=Brandon+Thomas+Adobe https://www.reddit.com/r/LinusTechTips/comments/1x0ruki/software_is_over_developer_uses_ai_to_build_free/ https://www.techspot.com/news/114136-software-over-developer-uses-ai-build-free-adobe.html 
+https://x.com/MarioNawfal/status/2109094130047689169 https://www.google.com/search?q=Brandon+Thomas+Adobe https://www.reddit.com/r/LinusTechTips/comments/1x0ruki/software_is_over_developer_uses_ai_to_build_free/ https://www.techspot.com/news/114136-software-over-developer-uses-ai-build-free-adobe.html https://www.google.com/search?q=brandon+thomas+adobe+gizmodo
